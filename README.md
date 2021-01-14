@@ -1,3 +1,3 @@
-_**You make a living by what you earn; you make a life by what you give.**_
+_**It wasn't raining when Noah built the ark..**_
 
-Winston Churchill
+Howard Ruff
