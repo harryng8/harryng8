@@ -1,3 +1,3 @@
-_**A successful man is one who can lay a firm foundation with the bricks that others throw at him.**_
+_**Winning is nice if you don't lose your integrity in the process.**_
 
-Sidney Greenberg
+Arnold Horshak
