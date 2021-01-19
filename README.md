@@ -1,3 +1,3 @@
-_**Winning is nice if you don't lose your integrity in the process.**_
+_**Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.**_
 
-Arnold Horshak
+Christiane Northrup
