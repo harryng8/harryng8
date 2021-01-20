@@ -1,3 +1,3 @@
-_**Own 100 percent of your focus. The most challenging of endurance drills will bring you to a level of optimal mental and physical performance.**_
+_**The man who removes a mountain begins by carrying away small stones..**_
 
-Lorii Myers
+Chinese Proverb
