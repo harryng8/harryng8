@@ -1,3 +1,3 @@
-_**He who is not courageous enough to take risks will accomplish nothing in life.**_
+_**We don't have to do all of it alone. We were never meant to.**_
 
-Mohamad Ali
+Brene Brown
