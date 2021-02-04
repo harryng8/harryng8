@@ -1,3 +1,3 @@
-_**When it comes to winning, you need the skill and the will.**_
+_**Failure is the condiment that gives success its flavor.**_
 
-Frank Tyger
+Truman Capote
