@@ -1,3 +1,3 @@
-_**Failure is the condiment that gives success its flavor.**_
+_**When you win, say nothing. When you lose, say less.**_
 
-Truman Capote
+Paul Brown
