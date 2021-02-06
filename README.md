@@ -1,6 +1,3 @@
-_**One does not accumulate but eliminate.
-It is not daily increase but daily
-decrease. The height of cultivation
-always runs to simplicity.**_
+_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
 
-Bruce Lee
+Lorii Myers
