@@ -1,3 +1,3 @@
-_**People rise to the occasion without hesitation when they feel inspired and challenged.**_
+_**It wasn't raining when Noah built the ark..**_
 
-Lorii Myers
+Howard Ruff
