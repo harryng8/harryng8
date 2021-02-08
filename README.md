@@ -1,3 +1,3 @@
-_**Let our advance worrying become advance thinking and planning.**_
+_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
 
-Winston Churchill
+Greg Child
