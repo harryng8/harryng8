@@ -1,3 +1,3 @@
-_**Think ahead. Don't let day-to-day operations drive out planning.**_
+_**Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.**_
 
-Donald Rumsfeld
+Zaha Hadid
