@@ -1,3 +1,3 @@
-_**Go confidently in the direction of your dreams. Live the life you've imagined. As you simplify your life, the laws of the universe will be simpler.**_
+_**Logic will get you from A to B. Imagination will take you everywhere.**_
 
-Henry David Thoreau
+Albert Einstein
