@@ -1,3 +1,3 @@
-_**What's the greater risk? Letting go of what people think or letting go of how I feel, what I believe, and who I am?**_
+_**If you want to make your dreams come true, the first thing you have to do is wake up.**_
 
-Brene Brown
+J.M. Power
