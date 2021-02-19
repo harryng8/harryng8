@@ -1,3 +1,3 @@
-_**If you want to make your dreams come true, the first thing you have to do is wake up.**_
+_**Don't count the days; make the days count.**_
 
-J.M. Power
+Mohamad Ali
