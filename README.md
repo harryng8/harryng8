@@ -1,3 +1,3 @@
-_**If you respect yourself in stressful situations, it will help you see the positive… It will help you see the message in the mess.**_
+_**Let go of who you think you're supposed to be; embrace who you are.**_
 
-Steve Maraboli
+Brene Brown
