@@ -1,3 +1,3 @@
-_**If you want to test your memory, try to recall what you were worrying about one year ago today.**_
+_**I keep asking myself these three questions.. What do you have? What do you want? What will you give up?**_
 
-E. Joseph Cossman
+Jack Ma
