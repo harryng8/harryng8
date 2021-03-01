@@ -1,3 +1,3 @@
-_**If you like what you do, and you're lucky enough to be good at it, do it for that reason.**_
+_**If you want to make your dreams come true, the first thing you have to do is wake up.**_
 
-Phil Grimshaw
+J.M. Power
