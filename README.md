@@ -1,3 +1,3 @@
-_**Beyond a certain point there is no return. This point has to be reached.**_
+_**Keep a positive mind. Remember, a failed attempt doesn't make you a failure-giving up does.**_
 
-Franz Kafka
+Lorii Myers
