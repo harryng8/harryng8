@@ -1,3 +1,3 @@
-_**The best way to predict the future is to create it.**_
+_**Stress is like a pulse, if you have it you are alive.**_
 
-Abraham Lincoln
+Steve Maraboli
