@@ -1,3 +1,3 @@
-_**Whether you think you can or think you can't, you're right..**_
+_**What you do speaks so loudly that I cannot hear what you say.**_
 
-Henry Ford
+Ralph Waldo Emerson
