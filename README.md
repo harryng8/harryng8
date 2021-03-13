@@ -1,3 +1,3 @@
-_**Life is like a camera: just focus on what is important, capture good times, develop from negative, and if things do not work out, take another shot!**_
+_**I keep asking myself these three questions.. What do you have? What do you want? What will you give up?**_
 
-Daireth Winehouse
+Jack Ma
