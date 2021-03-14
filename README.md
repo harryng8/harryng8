@@ -1,3 +1,3 @@
-_**I keep asking myself these three questions.. What do you have? What do you want? What will you give up?**_
+_**The beginning of freedom is the realization that you are not the possessing entity the thinker.**_
 
-Jack Ma
+Eckhart Tolle
