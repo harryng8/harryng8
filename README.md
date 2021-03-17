@@ -1,3 +1,3 @@
-_**You will never win if you never begin.**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 
-Helen Rowland
+Honore de Balzac
