@@ -1,3 +1,3 @@
-_**There is nothing noble about being superior to some other man. The true nobility is in being superior to your previous self.**_
+_**Your overnight success story is always a result of everything you have done in your life until that moment.**_
 
-Hindu Proverb
+Bel Pesce
