@@ -1,3 +1,3 @@
-_**Your overnight success story is always a result of everything you have done in your life until that moment.**_
+_**An aspirational diet will have you dreaming of success; but it's the attachment of expectations and tangible goals that feeds the desire, persistence, and fortitude required to make the win.**_
 
-Bel Pesce
+Lorii Myers
