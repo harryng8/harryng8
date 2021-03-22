@@ -1,3 +1,3 @@
-_**Winning is not everything, but the effort to win is.**_
+_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
 
-Zig Ziglar
+Ray Kroc
