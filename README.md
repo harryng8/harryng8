@@ -1,3 +1,3 @@
-_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
+_**We are each gifted in a unique and important way. It is our privilege and our adventure to discover our own special light**_
 
-Ray Kroc
+Mary Dunbar
