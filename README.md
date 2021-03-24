@@ -1,3 +1,3 @@
-_**I keep asking myself these three questions.. What do you have? What do you want? What will you give up?**_
+_**You make a living by what you earn; you make a life by what you give.**_
 
-Jack Ma
+Winston Churchill
