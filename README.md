@@ -1,3 +1,3 @@
-_**Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.**_
+_**Sometimes the bravest and most important thing you can do is just show up.**_
 
-Christiane Northrup
+Brene Brown
