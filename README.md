@@ -1,3 +1,3 @@
-_**Sometimes you climb out of bed in the morning and you think, I'm not going to make it, but you laugh inside - remembering all the times you've felt that way.**_
+_**Not every day is going to offer us a chance to save somebody's life, but every day offers us an opportunity to affect one.**_
 
-Charles Bukowski
+Mark Bezos
