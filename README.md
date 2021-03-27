@@ -1,3 +1,3 @@
-_**It isn't the mountains ahead to climb that wear you out; it's the pebble in your shoe.**_
+_**Don't be tempted to break momentum-work through it.**_
 
-Mohamad Ali
+Lorii Myers
