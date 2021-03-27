@@ -1,3 +1,3 @@
-_**Not every day is going to offer us a chance to save somebody's life, but every day offers us an opportunity to affect one.**_
+_**It isn't the mountains ahead to climb that wear you out; it's the pebble in your shoe.**_
 
-Mark Bezos
+Mohamad Ali
