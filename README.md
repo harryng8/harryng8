@@ -1,3 +1,3 @@
-_**Don't be tempted to break momentum-work through it.**_
+_**Great things are done by a series of small things brought together.**_
 
-Lorii Myers
+Vincent Van Gogh
