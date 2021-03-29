@@ -1,3 +1,6 @@
-_**Your overnight success story is always a result of everything you have done in your life until that moment.**_
+_**One does not accumulate but eliminate.
+It is not daily increase but daily
+decrease. The height of cultivation
+always runs to simplicity.**_
 
-Bel Pesce
+Bruce Lee
