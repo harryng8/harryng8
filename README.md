@@ -1,6 +1,3 @@
-_**One does not accumulate but eliminate.
-It is not daily increase but daily
-decrease. The height of cultivation
-always runs to simplicity.**_
+_**If you can consciously let yourself get taken and see where you go, that's an exercise. That's discipline. To follow the scent. Let yourself go and see what happens, that takes a bit of courage.**_
 
-Bruce Lee
+Bill Murray
