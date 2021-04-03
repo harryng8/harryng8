@@ -1,3 +1,3 @@
-_**Ignition (n): The motivational process that occurs when your identity becomes linked to a long-term vision of your future. Triggers significant amounts of unconscious energy; usually marked by the realization: That is who I want to be.**_
+_**Feeling grateful to or appreciative of someone or something in your life actually attracts more of the things that you appreciate and value into your life.**_
 
- Daniel Coyle
+Christiane Northrup
