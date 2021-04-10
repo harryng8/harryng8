@@ -1,3 +1,3 @@
-_**Do the best you can until you know better. Then when you know better, do better.**_
+_**Winning is not everything, but the effort to win is.**_
 
-Maya Angelou
+Zig Ziglar
