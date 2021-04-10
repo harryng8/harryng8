@@ -1,3 +1,3 @@
-_**Winning is not everything, but the effort to win is.**_
+_**If you're changing the world, you're working on important things. You're excited to get up in the morning.**_
 
-Zig Ziglar
+Larry Page
