@@ -1,3 +1,3 @@
-_**If you're changing the world, you're working on important things. You're excited to get up in the morning.**_
+_**You defeated me But you won't defeat me again Because you have grown all you can grow.. But I am still growing (about Mount Everest).**_
 
-Larry Page
+Edmund Hillary
