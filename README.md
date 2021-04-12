@@ -1,3 +1,6 @@
-_**We hold ourselves back in ways both big and small, by lacking self-confidence, by not raising our hands, and by pulling back when we should be leaning in.**_
+_**One does not accumulate but eliminate.
+It is not daily increase but daily
+decrease. The height of cultivation
+always runs to simplicity.**_
 
-Sheryl Sandberg
+Bruce Lee
