@@ -1,3 +1,3 @@
-_**Stress is like a pulse, if you have it you are alive.**_
+_**We hold ourselves back in ways both big and small, by lacking self-confidence, by not raising our hands, and by pulling back when we should be leaning in.**_
 
-Steve Maraboli
+Sheryl Sandberg
