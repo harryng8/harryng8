@@ -1,6 +1,3 @@
-_**One does not accumulate but eliminate.
-It is not daily increase but daily
-decrease. The height of cultivation
-always runs to simplicity.**_
+_**Remove the temptation to settle for anything short of what you deserve.**_
 
-Bruce Lee
+Lorii Myers
