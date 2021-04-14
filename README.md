@@ -1,3 +1,3 @@
-_**Many a false step was made by standing still.**_
+_**The man who removes a mountain begins by carrying away small stones..**_
 
-Fortune Cookie
+Chinese Proverb
