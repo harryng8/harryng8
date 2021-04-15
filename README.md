@@ -1,3 +1,3 @@
-_**The man who removes a mountain begins by carrying away small stones..**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 
-Chinese Proverb
+Honore de Balzac
